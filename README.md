@@ -52,7 +52,7 @@ Simply open index.html in your browser to view the website.
 
 For inquiries or collaborations, reach out via:
 	•	Email: l3xcethecreator@gmail.com
-	•	Phone: +234 915 487 6021
+	•	Phone: +234 916 487 6021
 
 ⸻
 
